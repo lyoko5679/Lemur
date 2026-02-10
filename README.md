@@ -1,1 +1,1 @@
-# Its a cool thing
+# they're a cool thing
